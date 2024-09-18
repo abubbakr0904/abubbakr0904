@@ -1,4 +1,5 @@
-Assalomu alaykum qandaye
+Assalomu alaykum 
+Men flutter dasturchiman sizchi ?
 
 
 
