@@ -1,5 +1,5 @@
 Assalomu alaykum 
-Men flutter dasturchiman sizchi ?
+Men flutter dasturchiman.
 
 
 
